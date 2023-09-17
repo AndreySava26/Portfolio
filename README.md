@@ -8,7 +8,5 @@
 Душевные разговоры , путешествия и получения новых знаний , это про меня!
 
 
+![alt text](https://imgur.com/tCzuznd)
 
-
-
-**https://imgur.com/tCzuznd**
