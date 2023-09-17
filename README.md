@@ -9,6 +9,3 @@
 
 
 
-
-
-https://imgur.com/tCzuznd
