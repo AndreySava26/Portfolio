@@ -8,5 +8,4 @@
 Душевные разговоры , путешествия и получения новых знаний , это про меня!
 
 
-(https://github.com/AndreySava26/Portfolio/blob/master/photo_2023-09-17_13-21-16.jpg)https://github.com/AndreySava26/Portfolio/blob/master/photo_2023-09-17_13-21-16.jpg)
 
